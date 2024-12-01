@@ -1,0 +1,1 @@
+Noter fra mine noter
